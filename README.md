@@ -1,2 +1,3 @@
 # hello-world
-Just having a try to become a progammer
+I WANNA BE MYSELF.
+:grin:
